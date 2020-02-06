@@ -1,3 +1,8 @@
+
+
+[![北美华人捐物小组 简书](https://img.shields.io/badge/北美华人捐物小组-简书-green.svg?style=for-the-badge&colorB=red)](https://www.jianshu.com/u/4b4d7605f167)
+
+
 ## 北美华人捐物小组
 
 我们是自2020年1月22日晚成立的独立运营的小组，我们并非官方机构或在册的非营利组织，但我们希望用我们的微薄之力帮助武汉渡过难关，也希望您协助我们做到转运流程透明。
@@ -14,5 +19,3 @@
 
 - 7天！15吨！海外第一批救援物资！https://mp.weixin.qq.com/s/rjrWn6HV5I-nfTmI43CE5g 
 
-
-[![北美华人捐物小组 简书](https://img.shields.io/badge/北美华人捐物小组-简书-green.svg?style=for-the-badge&colorB=red)](https://www.jianshu.com/u/4b4d7605f167)
